@@ -7,6 +7,6 @@
 6. Inu shiba
 7. Walfie
 8. Alaskan Maluamute
-9. Pugs
+9. Poppy
 
 
